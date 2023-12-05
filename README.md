@@ -52,4 +52,4 @@ As a cost-effective alternative to other office suites, WPS Office provides a co
 
 WPS Office stands out as a robust and versatile office suite, offering a range of features and benefits for users across various domains. Whether you're a student, professional, or casual user, WPS Office provides the tools needed for efficient document creation, editing, and collaboration. With its user-friendly interface and cross-platform compatibility, it continues to be a popular choice in the competitive landscape of office productivity software.
 
-Source: [https://crackszoom.com/](https://crackszoom.com/)
+Source: [WPS Office](https://crackszoom.com/)
